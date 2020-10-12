@@ -1,1 +1,1 @@
-![Tesseract's Altered State](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FAltered_State_(Tesseract_album)&psig=AOvVaw0tNVrzLQftOofMjvGiUEQ-&ust=1602596989870000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCNDvt5SZr-wCFQAAAAAdAAAAABAD)
+![Tesseract's Altered State](https://upload.wikimedia.org/wikipedia/en/2/2f/Altered_State_%28Album_Cover%29.jpg)
